@@ -3,7 +3,7 @@
 ### *_Ingredientes:_*
 
 * 4 colheres (sopa) de manteiga
-* 1 kg de filé de frango em tiras finas
+* 1 kg de filé de frango em tiras finas ou em cubinhos
 * 2 cebolas picadas
 * meia colher (sopa) de sal
 * 1 pitada de pimenta-do-reino moída
@@ -13,10 +13,6 @@
 * 1 colher (sopa) de mostarda
 * 2 colheres (sopa) de ketchup
 * 1 lata de NESTLÉ® Creme de Leite
-
-
-
-
 
 ### *_Preparo:_*
 
@@ -33,5 +29,3 @@
 * **6.**  Incorpore delicadamente o NESTLÉ Creme de Leite e retire do fogo antes de ferver.
 
 * **7.**  Sirva com arroz branco.
-
-
