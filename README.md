@@ -2,4 +2,5 @@
 
 :)
 
-- Strogonoff de frango
+- Strogonoff de frango;
+- Pavê de chocolate;
